@@ -21,3 +21,6 @@ im not the best when it comes to social interactions soz :((
 I LOVEE DOOMBRINGER !!
 
 
+
+![x](https://pbs.twimg.com/media/Go7idjkWEAAJUQh?format=jpg&name=medium)
+
