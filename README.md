@@ -12,4 +12,12 @@
 ╰ ・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄     (^o^)/     ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
 
 
+I dont know how to use github :sob : !!
+
+Cud/touch comf ^^ feel free to sit with me !!! 
+
+im not the best when it comes to social interactions soz :((
+
+I LOVEE DOOMBRINGER !!
+
 
