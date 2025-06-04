@@ -1,7 +1,6 @@
-![x](https://64.media.tumblr.com/423834478a7569c7dac1d9394202a2ce/8fafd19908c5c69e-79/s540x810/0231286ecda73fb9c0b44b3ca7db1424b91c2b1d.gifv)
+![x]([https://64.media.tumblr.com/423834478a7569c7dac1d9394202a2ce/8fafd19908c5c69e-79/s540x810/0231286ecda73fb9c0b44b3ca7db1424b91c2b1d.gifv](https://i.pinimg.com/736x/d8/83/de/d883de5e8e00c51c33db7534237773eb.jpg))
 
 
-![x](https://static.wikitide.net/hellmetwiki/5/55/Hellmet_Wordmark.png)
 
 
 ╭・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ▄︻デ══━一 ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
