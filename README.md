@@ -6,7 +6,7 @@
 ╭・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ╰（‵□′）╯ ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
 
 
-                      [strawpage !!](https://skizzleblue.straw.page) 
+   [strawpage !!](https://skizzleblue.straw.page) 
                        
 
 ╰ ・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄     (^o^)/     ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
