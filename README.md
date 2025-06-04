@@ -6,14 +6,14 @@
 ╭・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ╰（‵□′）╯ ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
 
 
-　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　![x](![gif](https://github.com/user-attachments/assets/0ee884e9-f197-42ec-87b7-94723b37a42e)
+　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　[gif](https://github.com/user-attachments/assets/0ee884e9-f197-42ec-87b7-94723b37a42e)
 
 
 
 　　　　 ​　　　　　　　　　　 ​　　　　　　- [strawpage !!](https://skizzleblue.straw.page) 
 
 
-╰ ・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ (^o^)/ ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
+╰ ・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ (^o^)/ ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
 
 
 
