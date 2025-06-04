@@ -3,14 +3,17 @@
 
 
 
-╭・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ╰（‵□′）╯ ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
+╭・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ╰（‵□′）╯ ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
 
 
-　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　![x](![image](https://github.com/user-attachments/assets/0ee884e9-f197-42ec-87b7-94723b37a42e)
-)
+　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　![x](![gif](https://github.com/user-attachments/assets/0ee884e9-f197-42ec-87b7-94723b37a42e)
 
 
-　　　　 ​　　　　　　　　　　 ​　　　　　　- [strawpage(byi)](https://skizzleblue.straw.page) 
+
+　　　　 ​　　　　　　　　　　 ​　　　　　　- [strawpage !!](https://skizzleblue.straw.page) 
 
 
 ╰ ・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ (^o^)/ ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
+
+
+
