@@ -6,10 +6,10 @@
 ╭・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ▄︻デ══━一 ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
 
 
-　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　　![](https://komarev.com/ghpvc/?username=1xdoee&color=334116&style=plastic&label=cuties)
+　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　　![](file:///C:/Users/talin/Downloads/blinkiesCafe-6u.gif)
 
 
-　　　　 ​　　　　　　　　　　 ​　　　　　　[pronouns.cc](https://pronouns.cc/@kekpy) - [strawpage(byi)](https://homicidalporkchops.straw.page/) - [carrd](https://1xdoe-my-love.carrd.co/) - [rentry(pt info)](https://rentry.co/voxxyval)
+　　　　 ​　　　　　　　　　　 ​　　　　　　- [strawpage(byi)](https://skizzleblue.straw.page) 
 
 
 ╰ ・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ▄︻デ══━一 ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
